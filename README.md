@@ -1,2 +1,2 @@
-# L-M-NH-M-TIN
+# Nhóm TIN HỌC
 2 TV
